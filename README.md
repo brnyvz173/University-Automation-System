@@ -188,7 +188,7 @@ GitHub:
 https://github.com/brnyvz173
 
 LinkedIn:
-https://www.linkedin.com/in/beren-yavuz/
+https://www.linkedin.com/in/beren-yavuz-63b25a38a/
 
 ---
 
